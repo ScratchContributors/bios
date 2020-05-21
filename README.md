@@ -1,6 +1,8 @@
 # Biographies
 All the biographies (also known as bios) here are sorted alphabetically.
 
+##### ConfusedBiscuit: Hi! I'm @ConfusedBiscuit and I'm a Forum helper! That means I assist in answering questions in the forums or just helping out in general! Don't let the professionalism in my posts fool you, I'm an average nerdy individual! I love anime, orcas, Nintendo games, and of course, the Youtube channel Failboat. Have a great day!!
+
 ##### Cool--Scratcher: Hey, I'm Cool Scratcher, the creator of a scratch course (https://www.youtube.com/playlist?list=PLyfaA-HVu0QBsBuzU1CnCIWOIrv5ogfCs), a forum helper, and a Scratcher with over 5 years of experience! I'm also on the wiki :) I'm at KidCreatorsTeam.
 
 ##### HollyParker: Hi, I'm Holly and I'm 14. I have recently been invited to 2 SDSs to help out, which is something that means a lot to me. I've been part of Scratch since I was 10, and I love being a part of the community. I love DC, Marvel, Star Wars, Lego, Harry Potter, Miraculous, Pokemon, Moshi Monsters, Ninjago, Nintendo and pushes. Thanks for reading!
