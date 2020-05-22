@@ -5,6 +5,12 @@ All the biographies (also known as bios) here are sorted alphabetically.
 
 ##### Cool--Scratcher: Hey, I'm Cool Scratcher, the creator of a scratch course (https://www.youtube.com/playlist?list=PLyfaA-HVu0QBsBuzU1CnCIWOIrv5ogfCs), a forum helper, and a Scratcher with over 5 years of experience! I'm also on the wiki :) I'm at KidCreatorsTeam.
 
+##### cs3508696: Hi, I'm @cs3508696, but everyone calls me Mia. I'm a scratch wiki contributor, for English and Hindi. I have helped out in a lot of the Scratch Month studios for 2020. I'm also a forum helper, taking orders in shops, and answering questions anyone has. I have over a year of experience in Scratch. I'm a positive person, a violinist, a dancer, a writer, and a swimmer. I'm a huge bookworm, and love to read!! :)
+
+##### DogCatPuppyLover: Hey there! I'm DogCatPuppyLover, a coding freak who knows HTML, CSS, JavaScript, and Scratch. I am a Scratch Wikian, a past FPC, and a member of the Scratch Welcoming Committee. Have a nice day! :D
+
+##### DancingLine: Hi, I'm DancingLine (aka Linerly) and I like playing and creating games, making artworks, coding, and more. I also have a website too. You can go to my website at https://linerly.github.io/
+
 ##### HollyParker: Hi, I'm Holly and I'm 14. I have recently been invited to 2 SDSs to help out, which is something that means a lot to me. I've been part of Scratch since I was 10, and I love being a part of the community. I love DC, Marvel, Star Wars, Lego, Harry Potter, Miraculous, Pokemon, Moshi Monsters, Ninjago, Nintendo and pushes. Thanks for reading!
 
 ##### PaddlerGames: Hello! I'm PaddlerGames. I started Scratch 5 years ago. I was the 378th FPC. I help out in the SDS, and have a Scratch Wiki account.
@@ -16,5 +22,4 @@ All the biographies (also known as bios) here are sorted alphabetically.
 ##### ThatOneWeirdDude: hehe car go vroom.
 
 ##### vinu45654: Hi, I'm vinu45654, you can call me vinu. I'm an SDS and PPTBF translator (honestly the last thing is not very impressive, it was just a small translation but it sounds proffesional). I've been in Scratch for five years now, but only 2 making (sort of) quality projects. I like Minecraft a lot and I hope to be able to help as much as I can.
-
 
