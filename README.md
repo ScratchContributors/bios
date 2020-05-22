@@ -19,6 +19,10 @@ All the biographies (also known as bios) here are sorted alphabetically.
 
 ##### Illusion705: ! I'm Illusion705, and I'm 13 :) I've helped out in 8 SDSs, I'm a SWC reviewer, and Scratch Wiki contributor, and I've helped out in a few of the Scratch Month studios for 2020. The Scratch community is definitely a big part of my life, and I'm so happy to have the privilege of being able to help out in it! I like science, math, Minecraft, coding, cats, and watching YouTube :D
 
+##### Joshua_M07: Hi my names Joshua im 12 and love coding! I make simple to complex games on this platform and i also make games on other things eg. Roblox! I am also a curator of the studio Upside Down!
+
+##### Ninja-Super-Girl: Hi! My name is Alicia and I'm a 13 year old Scratcher from Sweden. I'm an SDS translator, a SWC Reviewer and Curator and I love helping around on this website in all the little ways possible! I've been on Scratch for a little over 3 years and aside from Scratch, I'm learning programming (JS, Java, Python etc...).
+
 ##### PaddlerGames: Hello! I'm PaddlerGames. I started Scratch 5 years ago. I was the 378th FPC. I help out in the SDS, and have a Scratch Wiki account.
 
 ##### queen_bee1021: Aloha! I'm Wendy. I help out in the FPCH studio. Currently, I'm trying to become a FPC and I have been curated once. My favorite color is black, my favorite TV show is Love 020, and my favorite candy is Reece's.
