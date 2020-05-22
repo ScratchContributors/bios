@@ -25,6 +25,8 @@ All the biographies (also known as bios) here are sorted alphabetically.
 
 ##### swim1016: Hi! I'm Swim1016, and I'm an SDS helper, a past FPC, and love to help around scratch in anyway I can! I love to give feedback! I love scratch, dance, swimming, and the color purple!
 
+##### Sandstorm5: Hi there! I am known as Sandstorm5 on Scratch, but feel free to call me Saturn. I am a Welcoming Committee Curator/Manager, a past SDS Helper, a Wiki Editor and I help out on the forums. I try to help out as much as possible around Scratch! I have over 6 years of experience on this site and in the community. I like metal, robotics and cats. I hope whoever reads this has a nice day! <3
+
 ##### ThatOneWeirdDude: hehe car go vroom.
 
 ##### vinu45654: Hi, I'm vinu45654, you can call me vinu. I'm an SDS and PPTBF translator (honestly the last thing is not very impressive, it was just a small translation but it sounds proffesional). I've been in Scratch for five years now, but only 2 making (sort of) quality projects. I like Minecraft a lot and I hope to be able to help as much as I can.
