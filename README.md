@@ -15,6 +15,8 @@ All the biographies (also known as bios) here are sorted alphabetically.
 
 ##### HollyParker: Hi, I'm Holly and I'm 14. I have recently been invited to 2 SDSs to help out, which is something that means a lot to me. I've been part of Scratch since I was 10, and I love being a part of the community. I love DC, Marvel, Star Wars, Lego, Harry Potter, Miraculous, Pokemon, Moshi Monsters, Ninjago, Nintendo and pushes. Thanks for reading!
 
+##### Illusion705: ! I'm Illusion705, and I'm 13 :) I've helped out in 8 SDSs, I'm a SWC reviewer, and Scratch Wiki contributor, and I've helped out in a few of the Scratch Month studios for 2020. The Scratch community is definitely a big part of my life, and I'm so happy to have the privilege of being able to help out in it! I like science, math, Minecraft, coding, cats, and watching YouTube :D
+
 ##### PaddlerGames: Hello! I'm PaddlerGames. I started Scratch 5 years ago. I was the 378th FPC. I help out in the SDS, and have a Scratch Wiki account.
 
 ##### R4356th: Hi! I am R4356th, an SDS Translator, a PSTBF Translator, a Scratch Translator, Test and English Scratch Wiki Editor and I also have helped to code Scratch. I write stories, code websites and do other things. Thank you for reading this!
