@@ -21,6 +21,8 @@ All the biographies (also known as bios) here are sorted alphabetically.
 
 ##### PaddlerGames: Hello! I'm PaddlerGames. I started Scratch 5 years ago. I was the 378th FPC. I help out in the SDS, and have a Scratch Wiki account.
 
+##### queen_bee1021: Aloha! I'm Wendy. I help out in the FPCH studio. Currently, I'm trying to become a FPC and I have been curated once. My favorite color is black, my favorite TV show is Love 020, and my favorite candy is Reece's.
+
 ##### R4356th: Hi! I am R4356th, an SDS Translator, a PSTBF Translator, a Scratch Translator, Test and English Scratch Wiki Editor and I also have helped to code Scratch. I write stories, code websites and do other things. Thank you for reading this!
 
 ##### swim1016: Hi! I'm Swim1016, and I'm an SDS helper, a past FPC, and love to help around scratch in anyway I can! I love to give feedback! I love scratch, dance, swimming, and the color purple!
