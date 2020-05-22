@@ -11,6 +11,8 @@ All the biographies (also known as bios) here are sorted alphabetically.
 
 ##### DancingLine: Hi, I'm DancingLine (aka Linerly) and I like playing and creating games, making artworks, coding, and more. I also have a website too. You can go to my website at https://linerly.github.io/
 
+##### fashionqueen9: I’m queen I edit the wiki I like to read figure skate and do martial arts
+
 ##### HollyParker: Hi, I'm Holly and I'm 14. I have recently been invited to 2 SDSs to help out, which is something that means a lot to me. I've been part of Scratch since I was 10, and I love being a part of the community. I love DC, Marvel, Star Wars, Lego, Harry Potter, Miraculous, Pokemon, Moshi Monsters, Ninjago, Nintendo and pushes. Thanks for reading!
 
 ##### PaddlerGames: Hello! I'm PaddlerGames. I started Scratch 5 years ago. I was the 378th FPC. I help out in the SDS, and have a Scratch Wiki account.
