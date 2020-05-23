@@ -39,3 +39,4 @@ All the biographies (also known as bios) here are sorted alphabetically.
 
 ##### vinu45654: Hi, I'm vinu45654, you can call me vinu. I'm an SDS and PPTBF translator (honestly the last thing is not very impressive, it was just a small translation but it sounds proffesional). I've been in Scratch for five years now, but only 2 making (sort of) quality projects. I like Minecraft a lot and I hope to be able to help as much as I can.
 
+##### MeowyTitan08: Hi, I'm Melon (Meowytitan08) and I'm an 11 year old atheist who likes to draw and play video games. I help translate the SDS into Irish and i like to help around in the forums too, particularly Questions about Scratch and Suggestions :)
