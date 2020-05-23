@@ -21,6 +21,8 @@ All the biographies (also known as bios) here are sorted alphabetically.
 
 ##### Joshua_M07: Hi my names Joshua im 12 and love coding! I make simple to complex games on this platform and i also make games on other things eg. Roblox! I am also a curator of the studio Upside Down!
 
+##### MeowyTitan08: Hi, I'm Melon (Meowytitan08) and I'm an 11 year old atheist who likes to draw and play video games. I help translate the SDS into Irish and i like to help around in the forums too, particularly Questions about Scratch and Suggestions :)
+
 ##### Ninja-Super-Girl: Hi! My name is Alicia and I'm a 13 year old Scratcher from Sweden. I'm an SDS translator, a SWC Reviewer and Curator and I love helping around on this website in all the little ways possible! I've been on Scratch for a little over 3 years and aside from Scratch, I'm learning programming (JS, Java, Python etc...).
 
 ##### PaddlerGames: Hello! I'm PaddlerGames. I started Scratch 5 years ago. I was the 378th FPC. I help out in the SDS, and have a Scratch Wiki account.
@@ -38,5 +40,3 @@ All the biographies (also known as bios) here are sorted alphabetically.
 ##### Toripikchu: SDS helper in micro, prehistoric, magic myths and fairy tales, and upside down i am also currently applying for FPC and have had a project on the front page twice
 
 ##### vinu45654: Hi, I'm vinu45654, you can call me vinu. I'm an SDS and PPTBF translator (honestly the last thing is not very impressive, it was just a small translation but it sounds proffesional). I've been in Scratch for five years now, but only 2 making (sort of) quality projects. I like Minecraft a lot and I hope to be able to help as much as I can.
-
-##### MeowyTitan08: Hi, I'm Melon (Meowytitan08) and I'm an 11 year old atheist who likes to draw and play video games. I help translate the SDS into Irish and i like to help around in the forums too, particularly Questions about Scratch and Suggestions :)
