@@ -17,6 +17,8 @@ All the biographies (also known as bios) here are sorted alphabetically.
 
 ##### HollyParker: Hi, I'm Holly and I'm 14. I have recently been invited to 2 SDSs to help out, which is something that means a lot to me. I've been part of Scratch since I was 10, and I love being a part of the community. I love DC, Marvel, Star Wars, Lego, Harry Potter, Miraculous, Pokemon, Moshi Monsters, Ninjago, Nintendo and pushes. Thanks for reading!
 
+##### hibyeperson: Okie! Hi there, my name is hibyeperson but you can call me Spring! I take part in being a Scratch Wiki Helpers and I enjoy helping around Scratch, which includes answering questions!
+
 ##### Illusion705: ! I'm Illusion705, and I'm 13 :) I've helped out in 8 SDSs, I'm a SWC reviewer, and Scratch Wiki contributor, and I've helped out in a few of the Scratch Month studios for 2020. The Scratch community is definitely a big part of my life, and I'm so happy to have the privilege of being able to help out in it! I like science, math, Minecraft, coding, cats, and watching YouTube :D
 
 ##### Joshua_M07: Hi my names Joshua im 12 and love coding! I make simple to complex games on this platform and i also make games on other things eg. Roblox! I am also a curator of the studio Upside Down!
