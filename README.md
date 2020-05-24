@@ -15,6 +15,8 @@ All the biographies (also known as bios) here are sorted alphabetically.
 
 ##### fashionqueen9: I’m queen I edit the wiki I like to read figure skate and do martial arts
 
+##### FrostyRAhAz: Hello! I am FrostyRAhAz. I am a Scratch Wiki editor and I was a past FPC (364). I like writing, coding, and animals! I've been on Scratch for about a year and a half and I love it!
+
 ##### HollyParker: Hi, I'm Holly and I'm 14. I have recently been invited to 2 SDSs to help out, which is something that means a lot to me. I've been part of Scratch since I was 10, and I love being a part of the community. I love DC, Marvel, Star Wars, Lego, Harry Potter, Miraculous, Pokemon, Moshi Monsters, Ninjago, Nintendo and pushes. Thanks for reading!
 
 ##### hibyeperson: Okie! Hi there, my name is hibyeperson but you can call me Spring! I take part in being a Scratch Wiki Helpers and I enjoy helping around Scratch, which includes answering questions!
