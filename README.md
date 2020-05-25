@@ -25,6 +25,8 @@ All the biographies (also known as bios) here are sorted alphabetically.
 
 ##### Joshua_M07: Hi my names Joshua im 12 and love coding! I make simple to complex games on this platform and i also make games on other things eg. Roblox! I am also a curator of the studio Upside Down!
 
+##### LuckyLucky7: Hello, I am LuckyLucky7 and I am 14 years old. I am a male who likes to program, create projects on Scratch, create and develop mods of existing games, and develop websites. I am a Forum Helper on Scratch who helps people on the Scratch forums by suggesting ideas for their suggestions or answering questions that they ask. I have been on Scratch since May 19, 2017 and my favorite emoji is XF(a combination of the XD emoji and the :P emoji, don't ask me why it is XF and not XP lol).
+
 ##### MeowyTitan08: Hi, I'm Melon (Meowytitan08) and I'm an 11 year old atheist who likes to draw and play video games. I help translate the SDS into Irish and i like to help around in the forums too, particularly Questions about Scratch and Suggestions :)
 
 ##### Ninja-Super-Girl: Hi! My name is Alicia and I'm a 13 year old Scratcher from Sweden. I'm an SDS translator, a SWC Reviewer and Curator and I love helping around on this website in all the little ways possible! I've been on Scratch for a little over 3 years and aside from Scratch, I'm learning programming (JS, Java, Python etc...).
