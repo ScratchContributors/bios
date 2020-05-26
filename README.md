@@ -7,9 +7,9 @@ All the biographies (also known as bios) here are sorted alphabetically.
 
 ##### cs3508696: Hi, I'm @cs3508696, but everyone calls me Mia. I'm a scratch wiki contributor, for English and Hindi. I have helped out in a lot of the Scratch Month studios for 2020. I'm also a forum helper, taking orders in shops, and answering questions anyone has. I have over a year of experience in Scratch. I'm a positive person, a violinist, a dancer, a writer, and a swimmer. I'm a huge bookworm, and love to read!! :)
 
-##### DogCatPuppyLover: Hey there! I'm DogCatPuppyLover, a coding freak who knows HTML, CSS, JavaScript, and Scratch. I am a Scratch Wikian, a past FPC, and a member of the Scratch Welcoming Committee. Have a nice day! :D
-
 ##### DancingLine: Hi, I'm DancingLine (aka Linerly) and I like playing and creating games, making artworks, coding, and more. I also have a website too. You can go to my website at https://linerly.github.io/
+
+##### DogCatPuppyLover: Hey there! I'm DogCatPuppyLover, a coding freak who knows HTML, CSS, JavaScript, and Scratch. I am a Scratch Wikian, a past FPC, and a member of the Scratch Welcoming Committee. Have a nice day! :D
 
 ##### ElectromanRocks718: ! I'm Electroman! I'm a male Scratcher who likes video games, math, science, running, swimming, and dogs! I am a wiki editor, a FPCAH curator, and a PPTBF curator.
 
@@ -40,6 +40,8 @@ All the biographies (also known as bios) here are sorted alphabetically.
 ##### swim1016: Hi! I'm Swim1016, and I'm an SDS helper, a past FPC, and love to help around scratch in anyway I can! I love to give feedback! I love scratch, dance, swimming, and the color purple!
 
 ##### Sandstorm5: Hi there! I am known as Sandstorm5 on Scratch, but feel free to call me Saturn. I am a Welcoming Committee Curator/Manager, a past SDS Helper, a Wiki Editor and I help out on the forums. I try to help out as much as possible around Scratch! I have over 6 years of experience on this site and in the community. I like metal, robotics and cats. I hope whoever reads this has a nice day! <3
+
+##### --TechHead--: Hey, I'm just an average guy who enjoys programming and helping other people out. I recently discovered that I like to test the limits of Scratch, by making games larger and longer than I have attempted in the past. I hope to find ways to make an incredible story-based game using Scratch someday. I contribute to the Scratch Forums and Wiki by adding and editing tutorials.
 
 ##### ThatOneWeirdDude: hehe car go vroom.
 
