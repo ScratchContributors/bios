@@ -3,7 +3,6 @@ All the biographies (also known as bios) here are sorted alphabetically.
 
 ##### citruus-juic3: Hello! I am a young female who enjoys art, and helping others! I joined on March 21,2020 and hope that I can be a great contributor to the Scratch Community. My scratch account is @citruus-juic3 and I enjoy posting projects that are for everyone to enjoy. I am an American who lives with my parents, brother, sister, and grandmother. I really hope to get a dog one day. =) On my free time off of Scratch, I like to play games, listen to music, or go out with friends! My favorite games are Scrabble, Roblox, and Uno!
 
-
 ##### ConfusedBiscuit: Hi! I'm @ConfusedBiscuit and I'm a Forum helper! That means I assist in answering questions in the forums or just helping out in general! Don't let the professionalism in my posts fool you, I'm an average nerdy individual! I love anime, orcas, Nintendo games, and of course, the Youtube channel Failboat. Have a great day!!
 
 ##### Cool--Scratcher: Hey, I'm Cool Scratcher, the creator of a scratch course (https://www.youtube.com/playlist?list=PLyfaA-HVu0QBsBuzU1CnCIWOIrv5ogfCs), a forum helper, and a Scratcher with over 5 years of experience! I'm also on the wiki :) I'm at KidCreatorsTeam.
@@ -25,6 +24,8 @@ All the biographies (also known as bios) here are sorted alphabetically.
 ##### hibyeperson: Okie! Hi there, my name is hibyeperson but you can call me Spring! I take part in being a Scratch Wiki Helpers and I enjoy helping around Scratch, which includes answering questions!
 
 ##### Illusion705: ! I'm Illusion705, and I'm 13 :) I've helped out in 8 SDSs, I'm a SWC reviewer, and Scratch Wiki contributor, and I've helped out in a few of the Scratch Month studios for 2020. The Scratch community is definitely a big part of my life, and I'm so happy to have the privilege of being able to help out in it! I like science, math, Minecraft, coding, cats, and watching YouTube :D
+
+##### jaguar1501: Hey there! I'm jaguar1501, otherwise known as Jaguar! I'm 10 years old and have been a part of Scratch since I was 7. I love to help people out on the forums, and I've recently become a Scratch Wiki contributor! I'm obsessed with Nintendo games (Right now, mostly Splatoon, Pokemon and Animal Crossing) and love to make fanart of characters from these games. I also love watching Failboat on Youtube, since he plays all my favourite games ^^'. Thanks for reading, and tell me anything I need to add!
 
 ##### Joshua_M07: Hi my names Joshua im 12 and love coding! I make simple to complex games on this platform and i also make games on other things eg. Roblox! I am also a curator of the studio Upside Down!
 
