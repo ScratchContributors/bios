@@ -5,7 +5,7 @@ All the biographies (also known as bios) here are sorted alphabetically.
 
 ##### ConfusedBiscuit: Hi! I'm @ConfusedBiscuit and I'm a Forum helper! That means I assist in answering questions in the forums or just helping out in general! Don't let the professionalism in my posts fool you, I'm an average nerdy individual! I love anime, orcas, Nintendo games, and of course, the Youtube channel Failboat. Have a great day!!
 
-##### Cool--Scratcher: Hey, I'm Cool Scratcher, the creator of a scratch course (https://www.youtube.com/playlist?list=PLyfaA-HVu0QBsBuzU1CnCIWOIrv5ogfCs), a forum helper, and a Scratcher with over 5 years of experience! I'm also on the wiki :) I'm at KidCreatorsTeam.
+##### Cool--Scratcher: Hey! I'm Cool Scratcher, a very experienced scratcher with 5+ years of experience! I really like video games, I'm a YouTuber, and I am a helper on the forums for welcoming new scratchers, and I am a Wiki editor. I'm also the founder and CEO of The Kid Creators Team, which you can see here: http://kidcreatorsteam.com
 
 ##### cs3508696: Hi, I'm @cs3508696, but everyone calls me Mia. I'm a scratch wiki contributor, for English and Hindi. I have helped out in a lot of the Scratch Month studios for 2020. I'm also a forum helper, taking orders in shops, and answering questions anyone has. I have over a year of experience in Scratch. I'm a positive person, a violinist, a dancer, a writer, and a swimmer. I'm a huge bookworm, and love to read!! :)
 
