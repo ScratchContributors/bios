@@ -23,6 +23,8 @@ All the biographies (also known as bios) here are sorted alphabetically.
 
 ##### hibyeperson: Okie! Hi there, my name is hibyeperson but you can call me Spring! I take part in being a Scratch Wiki Helpers and I enjoy helping around Scratch, which includes answering questions!
 
+##### HighFlyer222: Hi! I am HighFlyer222, a normal Scratcher like you, I am 13 and I am a Turkish Scratch Wiki contributor. I love coding, also in written languages, and I am bad at writing bios.
+
 ##### Illusion705: ! I'm Illusion705, and I'm 13 :) I've helped out in 8 SDSs, I'm a SWC reviewer, and Scratch Wiki contributor, and I've helped out in a few of the Scratch Month studios for 2020. The Scratch community is definitely a big part of my life, and I'm so happy to have the privilege of being able to help out in it! I like science, math, Minecraft, coding, cats, and watching YouTube :D
 
 ##### jaguar1501: Hey there! I'm jaguar1501, otherwise known as Jaguar! I'm 10 years old and have been a part of Scratch since I was 7. I love to help people out on the forums, and I've recently become a Scratch Wiki contributor! I'm obsessed with Nintendo games (Right now, mostly Splatoon, Pokemon and Animal Crossing) and love to make fanart of characters from these games. I also love watching Failboat on Youtube, since he plays all my favourite games ^^'. Thanks for reading, and tell me anything I need to add!
