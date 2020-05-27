@@ -1,6 +1,9 @@
 # Biographies
 All the biographies (also known as bios) here are sorted alphabetically.
 
+##### citruus-juic3: Hello! I am a young female who enjoys art, and helping others! I joined on March 21,2020 and hope that I can be a great contributor to the Scratch Community. My scratch account is @citruus-juic3 and I enjoy posting projects that are for everyone to enjoy. I am an American who lives with my parents, brother, sister, and grandmother. I really hope to get a dog one day. =) On my free time off of Scratch, I like to play games, listen to music, or go out with friends! My favorite games are Scrabble, Roblox, and Uno!
+
+
 ##### ConfusedBiscuit: Hi! I'm @ConfusedBiscuit and I'm a Forum helper! That means I assist in answering questions in the forums or just helping out in general! Don't let the professionalism in my posts fool you, I'm an average nerdy individual! I love anime, orcas, Nintendo games, and of course, the Youtube channel Failboat. Have a great day!!
 
 ##### Cool--Scratcher: Hey, I'm Cool Scratcher, the creator of a scratch course (https://www.youtube.com/playlist?list=PLyfaA-HVu0QBsBuzU1CnCIWOIrv5ogfCs), a forum helper, and a Scratcher with over 5 years of experience! I'm also on the wiki :) I'm at KidCreatorsTeam.
