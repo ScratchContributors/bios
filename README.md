@@ -35,6 +35,8 @@ All the biographies (also known as bios) here are sorted alphabetically.
 
 ##### MeowyTitan08: Hi, I'm Melon (Meowytitan08) and I'm an 11 year old atheist who likes to draw and play video games. I help translate the SDS into Irish and i like to help around in the forums too, particularly Questions about Scratch and Suggestions :)
 
+##### MistyRain17: I'm a Scratch Design Studio curator, Scratch Wiki Contributor. Propose Projects to be Featured Curator, Scratch Camp Counsellor, Front Page Curator Applications Curator, and Front Page Curator Help Studio Curator. :-)
+
 ##### Ninja-Super-Girl: Hi! My name is Alicia and I'm a 13 year old Scratcher from Sweden. I'm an SDS translator, a SWC Reviewer and Curator and I love helping around on this website in all the little ways possible! I've been on Scratch for a little over 3 years and aside from Scratch, I'm learning programming (JS, Java, Python etc...).
 
 ##### PaddlerGames: Hello! I'm PaddlerGames. I started Scratch 5 years ago. I was the 378th FPC. I help out in the SDS, and have a Scratch Wiki account.
