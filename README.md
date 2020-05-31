@@ -23,7 +23,7 @@ All the biographies (also known as bios) here are sorted alphabetically.
 
 ##### hibyeperson: Okie! Hi there, my name is hibyeperson but you can call me Spring! I take part in being a Scratch Wiki Helpers and I enjoy helping around Scratch, which includes answering questions!
 
-##### HighFlyer222: Hi! I am HighFlyer222, a normal Scratcher like you, I am 13 and I am a Turkish Scratch Wiki contributor. I love coding, also in written languages, and I am bad at writing bios.
+##### HighFlyer222: Hi! I am HighFlyer222, a normal Scratcher like you, I am 13, I am a Turkish Scratch Wiki contributor and a PPTBF translator. I love coding, also in written languages, I like Terraria, Undertale and Minecraft, and I am bad at writing bios.
 
 ##### Illusion705: ! I'm Illusion705, and I'm 13 :) I've helped out in 8 SDSs, I'm a SWC reviewer, and Scratch Wiki contributor, and I've helped out in a few of the Scratch Month studios for 2020. The Scratch community is definitely a big part of my life, and I'm so happy to have the privilege of being able to help out in it! I like science, math, Minecraft, coding, cats, and watching YouTube :D
 
