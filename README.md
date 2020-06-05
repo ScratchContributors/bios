@@ -1,3 +1,6 @@
+
+Here you will find all the bios of our contributors!
+=======
 # Biographies
 All the biographies (also known as bios) here are sorted alphabetically.
 
@@ -62,3 +65,4 @@ All the biographies (also known as bios) here are sorted alphabetically.
 ##### Toripikchu: SDS helper in micro, prehistoric, magic myths and fairy tales, and upside down i am also currently applying for FPC and have had a project on the front page twice
 
 ##### vinu45654: Hi, I'm vinu45654, you can call me vinu. I'm an SDS and PPTBF translator (honestly the last thing is not very impressive, it was just a small translation but it sounds proffesional). I've been in Scratch for five years now, but only 2 making (sort of) quality projects. I like Minecraft a lot and I hope to be able to help as much as I can.
+
