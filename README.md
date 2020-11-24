@@ -52,6 +52,8 @@ All the biographies (also known as bios) here are sorted alphabetically.
 
 ##### R4356th: Hi! I am R4356th, an SDS Translator, a PSTBF Translator, a Scratch Translator, Test and English Scratch Wiki Editor and I also have helped to code Scratch. I write stories, code websites and do other things. Thank you for reading this!
 
+##### retro_person: I'm a Russian, 11-year-old geeky nerd who can do a perfect British accent, is a Scratch Wiki editor, YouTuber, Scratcher, and GitHub...er?, who also overuses Comic Sans and semicolons and is trying to archive every Scratch mod and version still on the 'net into a GitHub repository. Also, a big steampunk and retro and vintage technology fan.
+
 ##### solid_orange: I'm 11 years old and I LOVE SPORTS. I play travel softball for Carolina Thunder. I also play basketball and football. I'm an SDS curator. I'm a die-hard Braves fan and Clemson fan (Not a bandwagon because I've been a Clemson fan my whole life and I was born into it, my whole family are die-hard Clemson fans too. My family has 4 generations and counting in a row to graduate from Clemson. I also live in Northern South Carolina so they're my home team.) Everyone have a great day. :)
 
 ##### swim1016: Hi! I'm Swim1016, and I'm an SDS helper, a past FPC, and love to help around scratch in anyway I can! I love to give feedback! I love scratch, dance, swimming, and the color purple!
